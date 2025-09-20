@@ -1,0 +1,1 @@
+wegide wereda entrance score
